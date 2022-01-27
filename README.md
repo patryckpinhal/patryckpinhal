@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @patryckpinhal
+- 👀 Twitter @filhodeforas
+- 📫 patryck.pinhal@gmail.com
