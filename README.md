@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @patryckpinhal
-- 👀 Twitter @filhodeforas
+- 👀 Twitter @pinhal31
 - 📫 patryck.pinhal@gmail.com
